@@ -17,7 +17,7 @@
 9. *Listening*
 10. *Be brief*
 # 鼓起勇气敞开心扉  
-> *Be authentic*
-真实的想法
-> *Be direct*
+> *Be authentic*  
+真实的想法  
+> *Be direct*  
 > *Be unapologetic*
